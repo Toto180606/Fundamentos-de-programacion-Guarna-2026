@@ -1,0 +1,1 @@
+En esta carpeta voy a subir todos los enunciados del primer parcial que encontre y con los que yo estudie, me sirvieron mucho, suelen tomar de mayor o menor medida los mismos ejercicios, a veces con ligeros cambios o respectivamente iguales, eso me parecio a la hora de relizar el parcial
